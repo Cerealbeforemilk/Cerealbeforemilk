@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Cerealbeforemilk
-- 👀 I’m interested in video games,amiibo,animal crosing,smash bros
+- 👀 I’m interested in video games,amiibo,animal crossing,smash bros
 - 🌱 I’m currently learning french🇫🇷
 - 💞️ I’m looking to collaborate on no projects yet,but i will change!
 - 📫 How to reach me Kvilhauglukas@gmail.com is my personal email!
 - 😄 Pronouns: I go by xe/xym!
-- ⚡ Fun fact: I collect amiibo and my collection is growing!
+- ⚡ Fun fact: I am a furry! (pls dont judge me😣)
 
 <!---
 Cerealbeforemilk/Cerealbeforemilk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
